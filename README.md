@@ -5,4 +5,4 @@ Just a try to see how works GitKraken
     - Secoejodnwojv1p level 234i01u4
     -72YFEH2OINVO20BN3UB03N
     -   lwjpnvpwevoe2wgggg
-    
+    -Change made by another user/
